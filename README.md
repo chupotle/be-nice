@@ -6,7 +6,7 @@ a semi-retired keyboard project
 
 20.95 mm EKH, 17.2 mm front height
 
-h60 compatible
+h60 compatible, need a 60% oring, clip ins only!!
 
 join my discord! [discord.gg/VyfpskKpxj](discord.gg/VyfpskKpxj)
 
