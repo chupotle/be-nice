@@ -2,7 +2,7 @@
 
 a semi-retired keyboard project
 
-4.99 degree 60%
+4.99 degree otd-oring 60%
 
 20.95 mm EKH, 17.2 mm front height
 
