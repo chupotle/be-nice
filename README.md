@@ -13,3 +13,8 @@ join my discord! [discord.gg/VyfpskKpxj](discord.gg/VyfpskKpxj)
 i'll whip up techincal drawings when i get the chance
 
 pls no for profit, or public gbs
+
+![sb](https://i.imgur.com/oyatmnD.png)
+
+
+![l](https://i.imgur.com/91AZ3Mb.png)
