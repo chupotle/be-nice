@@ -8,6 +8,8 @@ a semi-retired keyboard project
 
 h60 compatible, need a 60% oring, clip ins only!!
 
+Flex cuts should be removed when using a plastic plate
+
 join my discord! [discord.gg/VyfpskKpxj](discord.gg/VyfpskKpxj)
 
 i'll whip up techincal drawings when i get the chance
